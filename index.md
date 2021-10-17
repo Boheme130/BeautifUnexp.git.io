@@ -1,7 +1,7 @@
 ## Beautifully Unexpected
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://static01.nyt.com/images/2019/05/06/fashion/met-gala-nina-144-lady-gaga/met-gala-nina-144-lady-gaga-superJumbo.jpg)
+![avatar](https://cdn.vox-cdn.com/thumbor/Ate6tLa7WJSumzBHfJQyOVlfalg=/1400x1400/filters:format(jpeg)/cdn.vox-cdn.com/uploads/chorus_asset/file/16217429/GettyImages_1147406436.jpg)
 <br>
 <br>
 
